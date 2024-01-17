@@ -1,3 +1,4 @@
+ini![IMG_20240118_021934](https://github.com/www-login/Foto/assets/155412066/540d419d-9bd4-4cf4-982a-19908d582766)
 ![IMG_20240117_170414](https://github.com/www-login/Foto/assets/155412066/bdb64a0d-5b56-413b-95e1-86d0f977e8be)
 ![kmc_20240117_005903](https://github.com/www-login/Foto/assets/155412066/1446f332-6c9c-4429-ba38-4fe3bd5d6fce)
 ![kmc_20240117_102227](https://github.com/www-login/Foto/assets/155412066/20e5960e-6b14-4166-8124-0dbf6c8e59e![IMG_20240118_021934](https://github.com/www-login/Foto/assets/155412066/dde320a6-1eaf-4347-a290-52897d3bf252)
