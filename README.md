@@ -1,3 +1,5 @@
+![IMG_20240118_171115](https://github.com/www-login/Foto/assets/155412066/b2a7c2b4-9338-47d0-aba7-004d00fce8c3)
+![IMG_20240118_171115](https://github.com/www-login/Foto/assets/155412066/3357d2f2-726b-41e7-b4fa-568cd7b1107e)
 ini![IMG_20240118_021934](https://github.com/www-login/Foto/assets/155412066/540d419d-9bd4-4cf4-982a-19908d582766)
 ![IMG_20240117_170414](https://github.com/www-login/Foto/assets/155412066/bdb64a0d-5b56-413b-95e1-86d0f977e8be)
 ![kmc_20240117_005903](https://github.com/www-login/Foto/assets/155412066/1446f332-6c9c-4429-ba38-4fe3bd5d6fce)
