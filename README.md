@@ -1,3 +1,4 @@
+![kmc_20240203_183435](https://github.com/www-login/Foto/assets/155412066/9cc9c2d9-ed35-425d-91ae-c1acdbc9cd30)
 ![IMG_20240121_150354](https://github.com/www-login/Foto/assets/155412066/f1bb7fe9-34cc-49f4-a83a-b1fe0bd23ae8)
 ![IMG_20240121_142744](https://github.com/www-login/Foto/assets/155412066/42af3ce3-c16d-483a-b3e7-1fc9bc8c1abd)
 ![IMG_20240118_171115](https://github.com/www-login/Foto/assets/155412066/b2a7c2b4-9338-47d0-aba7-004d00fce8c3)
