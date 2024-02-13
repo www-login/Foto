@@ -1,3 +1,6 @@
+![kmc_20240213_130833](https://github.com/www-login/Foto/assets/155412066/ede4411e-2fed-4d2f-800a-79f9e8216a74)
+![kmc_20240213_130901](https://github.com/www-login/Foto/assets/155412066/e133c860-5612-4821-8ad5-9a02aab56a94)
+![kmc_20240213_131121](https://github.com/www-login/Foto/assets/155412066/da906da0-f19d-4252-a2fa-0f6585101519)
 ![kmc_20240203_183435](https://github.com/www-login/Foto/assets/155412066/9cc9c2d9-ed35-425d-91ae-c1acdbc9cd30)
 ![IMG_20240121_150354](https://github.com/www-login/Foto/assets/155412066/f1bb7fe9-34cc-49f4-a83a-b1fe0bd23ae8)
 ![IMG_20240121_142744](https://github.com/www-login/Foto/assets/155412066/42af3ce3-c16d-483a-b3e7-1fc9bc8c1abd)
